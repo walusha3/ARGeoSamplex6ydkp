@@ -1,1 +1,0 @@
-# ARGeoSamplex6ydkp
